@@ -1,0 +1,1 @@
+I have so many scripts for this repo that I need to sign-off for inclusion.I just, finally, realised an old-skool corkboard. It is my 'Board of Manifestation'. I am soon to mount the corkboard. I will annotated a not of manifestation and affix for action. B9108
